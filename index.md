@@ -121,9 +121,9 @@ Pour toute question concernant cette politique de confidentialité ou pour exerc
 
 **Corridor Formation**
 
-- **E-mail** : privacy@corridor-formation.cm
-- **Adresse** : [Votre adresse postale]
-- **Téléphone** : [Votre numéro de téléphone]
+- **E-mail** : privacy@corridor-cm.com
+- **Adresse** : Douala - Cameroun
+- **Téléphone** : +237 6 83 39 82 00
 
 ## Autorité de contrôle
 
